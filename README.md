@@ -5,6 +5,6 @@ I'm Rouba, a Software Engineer with a passion for problem solving and optimizing
 - 💻 Graduate of the University of Cincinnati with a bachelors in Computer Science;
 - 🌴 Traveling to beaches and warm weather > winter;
 - 🍪 Baking == Love;
-- 🙏 Pilates && Yoga - Namaste 🦋
+- 🙏 Pilates && Yoga 
 - 😄 Pronouns: she/her/hers
 
